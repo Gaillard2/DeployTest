@@ -1,1 +1,0 @@
-<p>Copiright 2014,tous droits reserves</p>
